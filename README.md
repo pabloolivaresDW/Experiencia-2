@@ -1,0 +1,1 @@
+Se debe revisar en el navegador Chrome.
